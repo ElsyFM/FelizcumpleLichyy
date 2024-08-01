@@ -1,3 +1,3 @@
 # HBD
 
-honestamente solo quiero que funcione
+Tarde pero seguro JUASJUAS
